@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SafeNut
+- 👀 I’m interested in Nintendo System modding
+- 🌱 I’m currently learning how to brain
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me; SafeNut#9643 on discord
